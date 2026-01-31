@@ -1,1 +1,0 @@
-# krijotani-projektin-tuaj.
